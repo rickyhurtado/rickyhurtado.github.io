@@ -1,1 +1,1 @@
-# Ricky Hurtado Github Website
+# Github Page
